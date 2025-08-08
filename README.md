@@ -1,0 +1,1 @@
+# ChatGPT-Interaction-Rules-for-developers-
